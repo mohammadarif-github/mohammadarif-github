@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mohammadarif.it159@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15nps5lyTFnKMOIlODPPJW7iITqVR1sN8/view](https://drive.google.com/file/d/15nps5lyTFnKMOIlODPPJW7iITqVR1sN8/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/15nps5lyTFnKMOIlODPPJW7iITqVR1sN8/view](https://drive.google.com/file/d/19Q-1NPziP3rt-H0bSKBpoky47gGiAyoS/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
