@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently Persuing **BSc in CSE**
 
-- 🌱 I’m currently learning **Django,Javascript**
+- 🌱 I’m currently learning **FastAPI,Docker,Javascript**
 
 - 👨‍💻 All of my projects are available at [https://mohammadarif-github.github.io/Portfolio/](https://mohammadarif-github.github.io/Portfolio/)
 
